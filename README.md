@@ -1,16 +1,20 @@
-<p align="center" width="100%"> <img src="https://komarev.com/ghpvc/?username=infinitebaths&label=ghouls:&color=3a65ab">
+<p align="center" width="100%"> <img src="https://komarev.com/ghpvc/?username=infinitebaths&label=ghouls:&color=00ff15">
 
 <div align="center">
   
 
-<img src="https://64.media.tumblr.com/a8023cdb75fc44ed072ba599446acadb/f312434e07d68d0a-6e/s500x750/e9a9df707de31ac859b35f848085d6dbfc286c1e.gifv" width="250">
+<img src="https://64.media.tumblr.com/f91a57c89d8b7ba5a654fd50492f9881/e6e5313ceeb8dbb0-8c/s1280x1920/54f33d4a3677feb75393f727972ffd1be2adff5e.gifv" width="250">
 
 <p></p>
 
-<b>copia or tyler </b> ♪  he/hxm </b>
+<b>rust or haft </b> ♪  he/hxm </b>
 
 <p align="center">
 P-DID sys, copia IRL, doubles <b>dni</b>
+
+<p></p>
+
+this github changes frequently due to multiple alters in the system using it 💔
 
 <p></p>
 
