@@ -7,14 +7,14 @@
 
 <p></p>
 
-<b>rust or haft </b> ♪  he/hxm </b>
+<b>rust</b>  or  haft ♪  he/hxm </b>
 
 <p align="center">
 P-DID sys, copia IRL, doubles <b>dni</b>
 
 <p></p>
 
-this github changes frequently due to multiple alters in the system using it 💔
+this github changes frequently due to multiple alters in the system using it 💔 we collectively go by tyler
 
 <p></p>
 
