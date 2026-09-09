@@ -15,6 +15,8 @@ P-DID sys, copia IRL, doubles <b>dni</b>
 <p></p>
 
 this github changes frequently due to multiple alters in the system using it 💔 we collectively go by tyler
+<p></p>
+our skin/pony is usually whoevers fronting
 
 <p></p>
 
